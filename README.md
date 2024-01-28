@@ -1,4 +1,4 @@
-- Hi, This is @Reinier-Schneider from Knoxxa Digital
+- Hi, This is @Reinier-Schneider from Knoxxa Digital IT Support
 - How Can I assist?
 
 <!---
